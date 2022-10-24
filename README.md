@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @janakelsay
 - 🖊 I am a writer
 - 📖 I am a maker
-- 🍓 a website for my artwork coming soon!
+- currently writing bitcoin poems in public 
