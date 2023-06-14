@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @jana
 - 🖊 I am a writer
 - 📖 I am a maker
-- currently writing poems in public 
+- currently adding product design to my list of skills
