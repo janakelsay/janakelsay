@@ -1,4 +1,3 @@
 - 👋 Hi, I’m @jana
 - 🖊 I am a writer
 - 📖 I am a maker
-- currently looking for work in writing, editing, graphic design
